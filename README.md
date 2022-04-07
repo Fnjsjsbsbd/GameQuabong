@@ -1,2 +1,3 @@
-# GameQuabong
-Khó tả
+"𝙷𝚎𝚕𝚕𝚘, 𝚆𝚘𝚛𝚕𝚍!".... 🍁
+•Thanh xuân vốn ngắn ngủi,vì vậy hãy dành sự yêu thương của bạn cho người bạn coi là quan trọng...
+𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐓𝐨 𝐌𝐲 𝐏𝐫𝐨𝐟𝐢𝐥𝐞✅
